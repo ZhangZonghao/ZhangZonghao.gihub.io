@@ -28,5 +28,4 @@
  
  * My teacher Dr. Chen talked with me about my research task: Looking for promoters induced by high density (OD>100); 2. Starting mode should be simple and economical (such as stable change starting, dissolved oxygen change starting, etc.). I feeled my teacher is very nice person, and very professional at biosysthensis and biomaterial field。I respect him very much.So I have to  get into my job as soon as possible, It's the real pressure and power sourse for me.
  
- *
- * My teacher Dr. Chen talked with me about my research task: Looking for promoters induced by high density (OD>100); 2. Starting mode should be simple and economical (such as stable change starting, dissolved oxygen change starting, etc.). I feeled my teacher is very nice person, and very professional at biosysthensis and biomaterial field。I respect him very much.So I have to  get into my job as soon as possible, It's the real pressure and power sourse for me.
+ * I like that sensation, which 
